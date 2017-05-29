@@ -1,2 +1,3 @@
 # hello-world
-getting my feet wet
+Hello there,
+Im just getting started in this community and excited to get my feet wet.  Moon tacos are overrated. 
